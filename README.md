@@ -4,7 +4,7 @@ Practical life guides and useful information.
 
 🌐 Official Website
 
-https://www.ivorystory.net/
+https://www.ivorystory.net/en/life/
 
 ## Categories
 
